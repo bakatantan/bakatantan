@@ -29,5 +29,5 @@ ___
 >. (shoujou ai/yuri/gl) so if ur also into that\
 >꒱ pls come talk 2 me!!!!
 ____
-> [!WARNING]
+> **WARNING**
 > This pony likes to run away a lot when she's nervous!!! If she dashes on you, feel free to shake ur head all disappointed like, she will feel it and know she needs to do better ^^
