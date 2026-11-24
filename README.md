@@ -15,7 +15,7 @@ ___
 <div align="center">
   
 # ᡕᠵデᡁ᠊╾━💥- - - - - - - - - - - - - - - - - - - - - - - -🩷♡ˊ˗
-**....USER ID....**
+![Nukos fighting! Someone stop them!!!](nukoFight.gif) ![more nukos fighting!!!! god why are they doing this!!!](nukoFight2.gif) ![a concerened nuko demanding they cease their fighting!](nukoStopItやめて.gif)**....USER ID....**
 ```
 
 
