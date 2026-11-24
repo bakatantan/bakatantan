@@ -10,6 +10,8 @@ ___
 
 *Note: I'm extremely socially challenged, if I say something stupid it's because I'm high. Forgive me!*
 ___
+<div align="center">
+
 <div align="left">
 
-<img src="https://github.com/bakatantan/assets/blob/main/loadinggad.gif?raw=true" width=300 height=300>
+<img src="https://github.com/bakatantan/assets/blob/main/loadinggad.gif?raw=true" width=300 height=300> 
