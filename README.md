@@ -12,9 +12,11 @@ ___
 ___
 <img src="https://github.com/bakatantan/assets/blob/main/loadinggad.gif?raw=true" width=300 height=300 align=left> 
    
-<div align="left">
+<div align="center">
   
 # ᡕᠵデᡁ᠊╾━💥- - - - - - - - - - - - - - - - - - - - - - - -🩷♡ˊ˗
+**....USER ID....**
+```
 
 
-
+```
