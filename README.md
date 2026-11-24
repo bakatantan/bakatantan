@@ -10,3 +10,5 @@ ___
 
 *Note: I'm extremely socially challenged, if I say something stupid it's because I'm high. Forgive me!*
 ___
+<div align="left"
+<p style="text-align:right">.☘︎﹌﹌﹌﹌﹌﹌﹌BASIC INFO﹌﹌﹌﹌﹌﹌﹌☘︎.</p>
