@@ -20,8 +20,7 @@ ___
 <div align=left>
 <ins>☘︎. halloo.. my name is pop/merk ^^</ins>
 
->꒱ i rlly love nicknames tho 2 hehe,,\
-. im a bit 2 socially recluse for friends but i\
+>꒱im a bit 2 socially recluse for friends but i\
 >. love getting 2 meet ppl on pt!\
 . im super shy and am usually high and/or drunk,,\
 . (easier 2 interact w ppl when ur not sober TxT)\
