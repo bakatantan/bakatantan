@@ -16,6 +16,7 @@ ___
   
 ![Nukos fighting! Someone stop them!!!](nukoFight.gif) ![more nukos fighting!!!! god why are they doing this!!!](nukoFight2.gif) ![a concerened nuko demanding they cease their fighting!](nukoStopItやめて.gif)**....FUCKASS ABOUT ME....**![a nuko shouting good luck!](goodluck.gif) ![a nuko running around frantically, he looks very stressed](stressednuko.gif)
 ___
+<img src="https://github.com/bakatantan/assets/blob/main/mikucatdance-background-removed-2026-11-24_02-44-23.gif?raw=true" height=200 align=right>
 <div align=left>
 <ins>☘︎. halloo.. my name is pop/merk ^^</ins>
 
