@@ -14,12 +14,6 @@ ___
    
 <div align="center">
   
-# ᡕᠵデᡁ᠊╾━💥- - - - - - - - - - - - - - - - - - - - - - - -🩷♡ˊ˗
-![Nukos fighting! Someone stop them!!!](nukoFight.gif) ![more nukos fighting!!!! god why are they doing this!!!](nukoFight2.gif) ![a concerened nuko demanding they cease their fighting!](nukoStopItやめて.gif)**....BASIC INFO....**![a nuko shouting good luck!](goodluck.gif) ![a nuko running around frantically, he looks very stressed](stressednuko.gif)
-```
-hallo,,
-my name is pop/merk/baka/tantan
-(honestly, whatever you prefer)
+![Nukos fighting! Someone stop them!!!](nukoFight.gif) ![more nukos fighting!!!! god why are they doing this!!!](nukoFight2.gif) ![a concerened nuko demanding they cease their fighting!](nukoStopItやめて.gif)**....FUCKASS ABOUT ME_PAINFULLY BARE....**![a nuko shouting good luck!](goodluck.gif) ![a nuko running around frantically, he looks very stressed](stressednuko.gif)
 
 
-```
