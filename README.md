@@ -1,5 +1,5 @@
 ___
-<img src="https://github.com/bakatantan/assets/blob/main/miogiggle.gif?raw=true" width=150 height=150 align="left"> 
+<img src="https://github.com/bakatantan/assets/blob/main/miojump.gif?raw=true" width=150 height=150 align="left"> 
 <div align="center">
 
 **☘︎𑣲𝄞 ݁WARNING: THIS USER SPEAKS (ALMOST) _EXCLUSIVELY_ IN MEOWS! PLEASE INTERACT WITH CAUTION!!**
