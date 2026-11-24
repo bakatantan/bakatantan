@@ -28,3 +28,4 @@ ___
 >. am,, i like anything related to girls media\
 >. (shoujou ai/yuri/gl) so if ur also into that\
 >꒱ pls come talk 2 me!!!!
+____
