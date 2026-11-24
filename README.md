@@ -5,3 +5,5 @@
 
 <img src="https://github.com/bakatantan/assets/blob/main/palestars.gif.webp?raw=true" width=600 height=600>
 
+![blinkie that says: a life? what's that? with a little computer on the left side of the image](whatlife.gif) ![blinkie that says: virtual angel](virtangel.gif) ![world is fuck copy paste blinkie](worldisfuck.gif)
+
