@@ -17,4 +17,14 @@ ___
 ![Nukos fighting! Someone stop them!!!](nukoFight.gif) ![more nukos fighting!!!! god why are they doing this!!!](nukoFight2.gif) ![a concerened nuko demanding they cease their fighting!](nukoStopItやめて.gif)**....FUCKASS ABOUT ME....**![a nuko shouting good luck!](goodluck.gif) ![a nuko running around frantically, he looks very stressed](stressednuko.gif)
 ___
 <div align=left>
-☘︎.
+<ins>☘︎. halloo.. my name is pop/merk ^^</ins>
+
+>꒱ i rlly love nicknames tho 2 hehe,,\
+. im a bit 2 socially recluse for friends but i\
+>. love getting 2 meet ppl on pt!\
+. im super shy and am usually high and/or drunk,,\
+. (easier 2 interact w ppl when ur not sober TxT)\
+. im also 21 and prefer 2 talk 2 ppl more mature than i\
+>. am,, i like anything related to girls media\
+>. (shoujou ai/yuri/gl) so if ur also into that\
+>꒱ pls come talk 2 me!!!!
