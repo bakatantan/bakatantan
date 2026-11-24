@@ -2,6 +2,5 @@
 <div align="center">
 
 **☘︎𑣲𝄞 ݁WARNING: THIS USER SPEAKS (ALMOST) _EXCLUSIVELY_ IN MEOWS! PLEASE INTERACT WITH CAUTION!!**
-![Border of clouds and stars facing up](starsclouds.gif.webp)
-![Border of clouds and stars facing down](starsclouds2.gif.webp)
+![Border of rainbow flashing stars rippling across page](multishootingstar.gif.webp)
   
