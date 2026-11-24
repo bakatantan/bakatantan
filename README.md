@@ -2,5 +2,6 @@
 <div align="center">
 
 **☘︎𑣲𝄞 ݁WARNING: THIS USER SPEAKS (ALMOST) _EXCLUSIVELY_ IN MEOWS! PLEASE INTERACT WITH CAUTION!!**
-![Border of rainbow flashing stars rippling across page](multishootingstar.gif.webp)
-  
+
+<img src="https://github.com/bakatantan/assets/blob/main/palestars.gif.webp?raw=true" width=600 height=600>
+
